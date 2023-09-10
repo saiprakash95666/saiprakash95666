@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @saiprakash95666 whose name is going to be rumble in no time😜
 - 👀 I’m interested in software development and application development.
-- 🌱 I’m currently pursuing my B.Tech final year and looking for great opportunities.
+- 🌱 I’m currently pursuing my Masters in Computer Science and looking for great opportunities.
 - 💞️ I’m looking to collaborate on great dynamic team where i can develop myself in the process of learning.
 - 📫 mail me at saiprakash95666@gmail.com.
 
